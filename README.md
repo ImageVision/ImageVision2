@@ -4,19 +4,17 @@ ImageVision-SDK 8 صدر رسميا !
  
  بسبب القيود المفروضة على حجم الملف في المستودع ، ليس هناك ملف ثابت في المستودع و الملف غير كامل و مناسب .   جميع التحديثات على هذا الإستراحة يتم نشرها من خلال الرابط أدناه ، يرجى إبقاء العين على التغييرات في الرابط أدناه .
  
-https://pan.baidu.com/s/1m4xi2nWj5wHQQrYefmomOA?pwd=1234        استخراج رمز: 1234
+https://pan.baidu.com/s/1F0tBFGroaztEflMBXPFVvQ?pwd=1234 提取码: 1234
 
-https://share.weiyun.com/RVEWPP1f
+https://share.weiyun.com/1dsaoQHV
 
-https://caiyun.139.com/m/i?0H5CJry3cGOnX      استخراج رمز:f1V0
+https://caiyun.139.com/m/i?0H5CIuEJ2DoNn 提取码:3xOK
 
-https://www.mediafire.com/file/of9ujnjr4r3knoz/ImageVision-SDK_8%2528%25E5%258B%2587%25E6%25AF%2585%2529.zip/file
+https://www.mediafire.com/file/0309otm39z76nce/ImageVision-SDK_10%2528WindTide%2529.zip/file
 
-https://jmj.cc/s/tr88da
+https://jmj.cc/s/a3xglk
 
-https://cloud.189.cn/web/share?code=32MJFnqINFze（访问码：2b5h）
-
-https://url95.ctfile.com/f/44915895-846055956-7e1b4b?p=9057 (访问密码: 9057))
+https://cloud.189.cn/web/share?code=3M3qEjzuEVVr（访问码：3qwu）
 
 الاتصال بالمجموعة ف ف التالية :
 
